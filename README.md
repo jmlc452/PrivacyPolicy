@@ -1,4 +1,4 @@
 # Stuio2500 Privacy Policy
 
 
-this game does not collect or store and share contact information or any kind with any entity or person
+The games of this studio( studio 2500) do not collect, store, or share contact information of any kind with any entity or person
