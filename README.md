@@ -1,4 +1,4 @@
-# Stuio2500 Privacy Policy
+# Privacy Policy
 
 
 Privacy Policy
